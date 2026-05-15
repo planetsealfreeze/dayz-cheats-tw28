@@ -1,4 +1,4 @@
-
+Exclusivo DayZ truco apuntado es el mejor DayZ truco apuntado con radar y apuntado automático. Seguro, confiable y optimizado para el máximo rendimiento.
 
 
 
